@@ -12,7 +12,7 @@
 [<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-Em.gif">](https://linktr.ee/heatabnormal)
 [<img src="https://files.catbox.moe/xn09gz.gif">](https://pronouns.cc/@AKIYAMA)
 [<img src="https://files.catbox.moe/85a92h.gif">](https://mizuren-hetgem.straw.page)
-[<img src="https://files.catbox.moe/4knn0q.gif">](https://guns.lol/puppyena)
+[<img src="https://files.catbox.moe/4knn0q.gif">](https://guns.lol/kokuhaku)
 [<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-cU.gif">](https://pin.it/3Bsx6jIbi)
 
 
