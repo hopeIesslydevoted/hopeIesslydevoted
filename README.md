@@ -1,5 +1,13 @@
-![](https://github.com/user-attachments/assets/12548f96-b010-49ed-ac49-d57e173fdb92) 
-![](https://github.com/user-attachments/assets/96cb33f5-6a5d-409f-83d7-6fae6d8090c2) 
+![](https://github.com/user-attachments/assets/d085ed53-b008-49e7-9c93-4da0392b89d6) 
+![](https://github.com/user-attachments/assets/f8d01668-df1e-4730-a180-25ee91e31e4a) 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ <img width="150" height="20" alt="1000030774" src="https://github.com/user-attachments/assets/f7506f6c-b29e-448b-ae6c-721359f90ec7" />
+<img width="150" height="20" alt="1000030775" src="https://github.com/user-attachments/assets/0e6826ac-0840-4938-b30b-8af8fcbd0823" />
+
+
+![](https://github.com/user-attachments/assets/57e76c3c-ba3a-4eba-95d3-8143b81e6026) 
+![](https://github.com/user-attachments/assets/c11d4059-ace8-45c4-bd2c-e886e1105b6d) 
+![](https://github.com/user-attachments/assets/3f3ba021-0e1b-4541-959c-57054994027d) 
+
 [<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-9p.gif">](https://en.pronouns.page/@amorous)
 [<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-Em.gif">](https://linktr.ee/heatabnormal)
 [<img src="https://files.catbox.moe/xn09gz.gif">](https://pronouns.cc/@AKIYAMA)
