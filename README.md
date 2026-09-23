@@ -8,7 +8,7 @@
 ![](https://github.com/user-attachments/assets/c11d4059-ace8-45c4-bd2c-e886e1105b6d) 
 ![](https://github.com/user-attachments/assets/3f3ba021-0e1b-4541-959c-57054994027d) 
 
-[<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-9p.gif">](https://en.pronouns.page/@amorous)
+[<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-9p.gif">](https://en.pronouns.page/@puppyenanan)
 [<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-Em.gif">](https://linktr.ee/heatabnormal)
 [<img src="https://files.catbox.moe/xn09gz.gif">](https://pronouns.cc/@AKIYAMA)
 [<img src="https://files.catbox.moe/85a92h.gif">](https://mizuren-hetgem.straw.page)
@@ -17,15 +17,11 @@
 
 
 
-my friends! ^_^ ↓
+<p align=center> my friends! ^_^ ↓
 
-<Details>
+  <div align="center">
   
-  <summary>
-    
-  </summary>
-  
-![](https://github.com/user-attachments/assets/031aabe6-0606-477e-a16c-119ae4927c20) 
+  ![](https://github.com/user-attachments/assets/031aabe6-0606-477e-a16c-119ae4927c20) 
 [valen ! (my gf <3)](https://github.com/ABYSSMAR3)‎ ‎ ‎ [dino !](https://github.com/tunafishyy)‎ ‎ ‎ [zippy !](https://github.com/AngelsCloverr)‎ ‎ ‎ [katsu !](https://github.com/sakasamagirlfeeling)‎ ‎ ‎ [yoku !](https://github.com/yokumallow)‎ ‎ ‎ [fuyu !](https://github.com/daycordmafuyu)‎ ‎ ‎ [tears !](https://github.com/tearsofgarnet)‎‎ ‎ ‎ [meop !](https://github.com/meopmaioi)‎ ‎ ‎ [haruki !](https://github.com/harukiiame)‎ ‎ ‎ [anki !](https://github.com/bowbowbowmizu)
 </p>
     </summary>
@@ -33,8 +29,6 @@ my friends! ^_^ ↓
 
 
 
-<div align="center">
-
-![](https://github.com/user-attachments/assets/ce896545-74d0-46b7-bee2-0685bc3569da) 
 
 
+![1000030782](https://github.com/user-attachments/assets/5590b025-baef-4c27-97fe-f8494763a703)
