@@ -8,7 +8,7 @@
 ![](https://github.com/user-attachments/assets/c11d4059-ace8-45c4-bd2c-e886e1105b6d) 
 ![](https://github.com/user-attachments/assets/3f3ba021-0e1b-4541-959c-57054994027d) 
 
-[<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-9p.gif">](https://en.pronouns.page/@puppyenanan)
+[<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-9p.gif">](https://en.pronouns.page/@kittynonome)
 [<img src="https://file.garden/aldWmQRfKCChSA5t/blinkiesCafe-Em.gif">](https://linktr.ee/heatabnormal)
 [<img src="https://files.catbox.moe/xn09gz.gif">](https://pronouns.cc/@AKIYAMA)
 [<img src="https://files.catbox.moe/85a92h.gif">](https://mizuren-hetgem.straw.page)
