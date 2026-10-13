@@ -4,7 +4,7 @@
 ![](https://github.com/user-attachments/assets/fb61f68c-180e-4432-b123-b8628829091e) 
 
 
-‎ ‎ ‎ ‎ ‎ [strawpage](https://vampuff.straw.page/)‎ ‎ ‎ ‎ ‎ [atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/kokuhaku)‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@Iuminous)‎ ‎ ‎ ‎ ‎ [pronouns.cc](https://pronouns.cc/@AKIYAMA)‎ ‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎ ‎ [strawpage](https://vampuff.straw.page/)‎ ‎ ‎ ‎ ‎ [atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/kokuhaku)‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@Iuminous)‎ ‎ ‎ ‎ ‎ [pronouns.cc (outdated)](https://pronouns.cc/@AKIYAMA)‎ ‎ ‎ ‎ ‎ 
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![1000031795](https://github.com/user-attachments/assets/e146072a-20e2-4616-a49e-8a54d68f3598)
