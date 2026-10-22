@@ -1,10 +1,8 @@
 <img width="1535" height="1043" alt="1000031965" src="https://github.com/user-attachments/assets/4164cbd3-fcb3-4e04-b249-2d01ff59d1bb" />
 
-<p align="center"> (art above by #me) 
+<p align="center"> art above by me
 
-
-‎ ‎ ‎ ‎ ‎ [strawpage](https://vampuff.straw.page/)‎ ‎ ‎ ‎ ‎ [atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/kokuhaku)‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@Iuminous)‎ ‎ ‎ ‎ ‎ [pronouns.cc (outdated)](https://pronouns.cc/@AKIYAMA)‎ ‎ ‎ ‎ ‎ 
-
+‎ ‎ ‎ ‎ ‎ [strawpage](https://vampuff.straw.page/)‎ ‎ ‎ ‎ ‎ [atabook](https://tangleduplove.atabook.org/)‎ ‎ ‎ ‎ ‎ [guns.lol](https://guns.lol/kokuhaku)‎ ‎ ‎ ‎ ‎ [pronouns.page](https://en.pronouns.page/@Iuminous)‎ ‎ ‎ ‎ ‎ [pronouns.cc (outdated)](https://pronouns.cc/@AKIYAMA)‎ ‎ ‎ ‎ ‎
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
