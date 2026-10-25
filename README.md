@@ -12,3 +12,26 @@
 <p align="center"> my‎ ‎ ‎  cute ‎ ‎ ‎ friends ‎ ‎ ‎ ⸜(｡˃ ᵕ ˂ )⸝♡
 
 ‎ ‎ ‎ ‎ ‎ [yuki / nynx (gf ♡)](https://github.com/ABYSSMAR3) ‎ ‎ ‎ [dino](https://github.com/tunafishyy) ‎ ‎ ‎ [zippy / mino](https://github.com/AngelsCloverr) ‎ ‎ ‎ [anki](https://github.com/skiesforeverbIue) ‎ ‎ ‎ [meop](https://github.com/meopmaioi) ‎ ‎ ‎ [katsu / makiri / isa](https://github.com/sakasamagirlfeeling) ‎ ‎ ‎ [yoku](https://github.com/yokumallow) ‎ ‎ ‎ [haruki](https://github.com/harukiiame) ‎ ‎ ‎ [luci / fuyu](https://github.com/daycordmafuyu) ‎ ‎ ‎ [star / mizuki](https://github.com/jellyfizzz) ‎ ‎ ‎ [tears](https://github.com/tearsofgarnet) ‎ ‎ ‎ [clauu / corey / luka](https://github.com/cl4uu83) ‎ ‎ ‎ [law](https://github.com/puppylawrie) ‎ ‎ ‎ [leadia](https://github.com/DoctorFunkbeat) 
+
+<details>
+    <summary>byi thing</summary>
+    <p> 
+      
+   - this was already mentioned in my bio but im a mizuena monoshipper , other ships that include mizuki or ena pls iwec unless we're close
+      
+   - i can be distant the first time we interact but ill latch onto u eventually
+    
+   - i most likely won't interact first
+    
+   - i usually dont follow back , i jst follow who i want
+
+   - i experiment with styles a lot , so if my style looks similar to urs then i promise u it was not intentional
+
+   - c+h is usually allowed unless my name says otherwise or if im already with someone
+
+   - DONT INVITE ME TO PARTIES
+
+   - stop putting google docs in my atabook im not reading all of that
+    
+   </p>
+</details>
