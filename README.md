@@ -14,10 +14,10 @@
 ‎ ‎ ‎ ‎ ‎ [yuki / nynx (gf ♡)](https://github.com/ABYSSMAR3) ‎ ‎ ‎ [dino](https://github.com/tunafishyy) ‎ ‎ ‎ [zippy / mino](https://github.com/AngelsCloverr) ‎ ‎ ‎ [anki](https://github.com/skiesforeverbIue) ‎ ‎ ‎ [meop](https://github.com/meopmaioi) ‎ ‎ ‎ [katsu / makiri / isa](https://github.com/sakasamagirlfeeling) ‎ ‎ ‎ [yoku](https://github.com/yokumallow) ‎ ‎ ‎ [haruki](https://github.com/harukiiame) ‎ ‎ ‎ [luci / fuyu](https://github.com/daycordmafuyu) ‎ ‎ ‎ [star / mizuki](https://github.com/jellyfizzz) ‎ ‎ ‎ [tears](https://github.com/tearsofgarnet) ‎ ‎ ‎ [clauu / corey / luka](https://github.com/cl4uu83) ‎ ‎ ‎ [law](https://github.com/puppylawrie) ‎ ‎ ‎ [leadia](https://github.com/DoctorFunkbeat) 
 
 <details>
-    <summary>byi thing</summary>
+    <summary>byi thing incase ure too lazy to read my rentry</summary>
     <p> 
       
-   - this was already mentioned in my bio but im a mizuena monoshipper , other ships that include mizuki or ena pls iwec unless we're close
+   - this was already mentioned in my bio but im a mizuena monoshipper , other ships that include mizuki or ena pls interact with VERY VERY EXTREME CAUTION unless we're close , and even then do NOT rub the ships in my face its annoying ( however i dont mind polycord in fact i actually like it a bit so theres that )
       
    - i can be distant the first time we interact but ill latch onto u eventually
     
@@ -32,6 +32,12 @@
    - DONT INVITE ME TO PARTIES
 
    - stop putting google docs in my atabook im not reading all of that
+
+   - i swear very often but i can keep it at a minimum since yknow ... we're on pt . a game with thousands of restrictions
+
+   - pls iwc if ur an adult unless ure oomf and i know u well already
+
+   - i am a hypersharing ena and mizuki yume . if ur nonsharing then pls do not break ur own dni , block me and move on
     
    </p>
 </details>
