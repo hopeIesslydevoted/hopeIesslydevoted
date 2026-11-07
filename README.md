@@ -2,6 +2,8 @@
 
 ![](https://github.com/user-attachments/assets/2a83a81c-3663-4e9c-a736-1d7aa64f6a33) 
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Hits](https://hits.sh/github.com/hopeIesslydevoted.svg?label=lovelies%20%E2%99%A1&color=ff97a9&labelColor=f7e6ef)](https://hits.sh/github.com/hopeIesslydevoted/)
+
 ![](https://github.com/user-attachments/assets/ef6445dc-14fc-4f34-b21a-b30720cf3928) 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎<details>
