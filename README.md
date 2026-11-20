@@ -79,7 +79,7 @@
     <summary> ────── 
         ო̴̟𝆬͜Ყᩨᰰ  ܻ⨍ⲅᩥִ i̫ ᧉ꯭ꬻִ d͜ 𝆬꯱ ! </summary>
   
-   [yuki](https://github.com/FALSEIDENITIES) & [dino](https://github.com/tunafishyy) <3 , [katsu](https://github.com/SakasamaGirlFeeling) , [zip] , [yoku](https://github.com/yokumallow) , (https://github.com/AngelsCloverr) , [anki](https://github.com/skiesforeverblue) , [meop](https://github.com/meopmaioi) , [law](https://github.com/puppylawrie) , [tears](https://github.com/tearsofgarnet) , [haruki](https://github.com/harukiiame) [fuyu](daycordmafuyu) , + more
+   [yuki](https://github.com/FALSEIDENITIES) & [dino](https://github.com/tunafishyy) <3 , [katsu](https://github.com/SakasamaGirlFeeling) , [yoku](https://github.com/yokumallow) , [zip](https://github.com/AngelsCloverr) , [anki](https://github.com/skiesforeverblue) , [meop](https://github.com/meopmaioi) , [law](https://github.com/puppylawrie) , [tears](https://github.com/tearsofgarnet) , [haruki](https://github.com/harukiiame) [fuyu](daycordmafuyu) , + more
 </details>
 </details>
 
